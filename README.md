@@ -1,0 +1,1 @@
+# Abdukodir_Khalilov_midterm_exam
